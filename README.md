@@ -1,0 +1,2 @@
+# Moje Repozytorum 
+ Moje repozytorium 
